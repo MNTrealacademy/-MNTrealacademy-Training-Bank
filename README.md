@@ -1,1 +1,0 @@
-# -MNTrealacademy-Training-Bank
